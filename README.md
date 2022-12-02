@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jrbartola
+- 👀 I’m interested in engineering, biking, music, finance, and more!
+- 🌱 I’m currently working on improving my Spanish and Mandardin Chinese
+- 💞️ I’m looking to collaborate on things
+- 📫 How to reach me: Email!
